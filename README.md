@@ -1,3 +1,3 @@
 # Bri'ish Compiler 
 
-I'm british !
+British pride through mockery.
