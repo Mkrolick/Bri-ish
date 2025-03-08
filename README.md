@@ -1,3 +1,3 @@
 # Bri'ish Compiler 
 
-British pride through mockery.
+British pride through self-mockery.
